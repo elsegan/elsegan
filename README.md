@@ -9,7 +9,7 @@
 
 💞️ I’m looking to collaborate on roles with hardware and software integration.
 
-📫 How to reach me: Email me at annie.elsegood@gmail.com
+📫 How to reach me: Email me at p_d_andy@live.co.uk
 
 Non-productive interests:
 - Dog-mum 🐶
